@@ -1,4 +1,4 @@
 # belajar-kolaborasi
-Ayo semangat belajar!!!
+Ayo semangat belajar!!!<br>
 Jangan Menyerah
 Fighting
